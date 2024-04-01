@@ -9,4 +9,4 @@ Si se decide por tomar el curso usted aprenderá algunos temas esenciales como l
 Estamos muy agradecidos por tomarse el tiempo de leer esta descripción, y nos encantaría saber sus opiniones acerca de este curso, queremos saber que estamos haciendo bien y que necesitamos mejorar, por lo cual siéntase libre de dejar sus opiniones y recomendaciones acerca de curso.
 
 [Curso disponible en Youtube]([url](https://www.youtube.com/watch?v=LcIQwUG9UbU))
-
+https://www.youtube.com/watch?v=LcIQwUG9UbU
